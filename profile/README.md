@@ -1,4 +1,4 @@
-# :metal: Welcome to the brotherhood
+# :zombie_man: 
 
 <br />
 
